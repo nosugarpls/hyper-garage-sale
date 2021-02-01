@@ -22,6 +22,7 @@ https://www.youtube.com/watch?v=otUd33qR2oU
 
 🦀 Author:
 https://nosugarpls.github.io/YCode-my-website/
+
 https://www.linkedin.com/in/yu-ashley-shi-328239197/
 
 🤞 Things that are involved in the app
